@@ -1,0 +1,1 @@
+# On-the-Comparative-Study-Between-Computer-Intensive-and-Classical-Methods-for-Analyzing-Stock-Prices
